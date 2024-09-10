@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @PorterCRHS
 - 👀 I’m interested in Education, Coffee, and Computer Science
-- 🌱 I’m currently learning how to take care of a 16 month old
-- 💞️ I’m looking to collaborate on interesting projects
-- 📫 How to reach me Message through canvas
+- 📫Reach me Message through canvas or at christopherbporter@katyisd.org
